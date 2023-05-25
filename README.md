@@ -6,7 +6,7 @@ Cybersecurity Student
 Back-end DEV
 
 
-Cybersecurity Analyst and pentester Jr
+Cybersecurity pentester Jr
 
 
 OPEN TO WORK
